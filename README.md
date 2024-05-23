@@ -1,5 +1,9 @@
 # jqsoj.github.io
-## heading
+## WHAT IS THIS??
 yo bro wassup, i just made this website coz im bored and if you got this link i love you
-### heading 3
+### WHO AM I???
 my name is jude
+#### FQA frequently asked questions about me
+Why am i bored? IDK
+favorite restuarant? dw about it
+# FAHAD ALSUWAIDI
