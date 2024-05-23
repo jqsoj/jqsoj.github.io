@@ -6,5 +6,6 @@ my name is jude
 #### FQA frequently asked questions about me
 Why am i bored? IDK
 favorite restuarant? dw about it
-# FAHAD ALSUWAIDI
+# FAHAD ALSUWAIDI AND KHALIFA HIS BIG BRO
 # WEBSITE MADE BY JUDE QURBI
+###### free palestine
