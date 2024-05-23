@@ -8,3 +8,4 @@ Why am i bored? IDK
 ^favorite restuarant? dw about it
 # WEBSITE MADE BY JUDE QURBI
 ### free palestine and love to all the niggas in taiwan
+كس امه الى كريقان
