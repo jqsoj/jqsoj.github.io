@@ -7,3 +7,4 @@ my name is jude
 Why am i bored? IDK
 favorite restuarant? dw about it
 # FAHAD ALSUWAIDI
+# WEBSITE MADE BY JUDE QURBI
