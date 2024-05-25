@@ -1,11 +1,9 @@
-# FAHAD ALSUWAIDI
+# JUDE QURBI
 ## WHAT IS THIS??
-yo bro wassup, i just made this website coz im bored and if you got this link i love you i put fahad alsuwaidi name there coz he doesnt believe i made this website
+I made this website because i was bored
 ### WHO AM I???
-my name is jude
-#### FQA frequently asked questions about me
-Why am i bored? IDK
-^favorite restuarant? dw about it
+my name is jude, I am 16 years old and i love chicken
 # WEBSITE MADE BY JUDE QURBI
-### free palestine and love to all the niggas in taiwan
-كس امه الى كريقان
+### free palestine
+>pic:
+![IMG-20221102-WA0019](https://github.com/jqsoj/jqsoj.github.io/assets/170632106/a0bfd505-e144-4d11-8037-628659f15d9b)
